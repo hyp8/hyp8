@@ -9,5 +9,5 @@
 ``` 
 
 
-- 🚀  Contato: <a target="_blank" href="mailto:hyp8tec@gmail.com">hyp8tec@gmail.com</a>
+- 🚀  Contato: <a target="_blank" href="mailto:hyp8tec@gmail.com">contato@hyp8.com.br</a>
 - 👹                                    H Y P 8 - <a target="_blank" href="https://hyp8.com.br">hyp8.com.br</a>
